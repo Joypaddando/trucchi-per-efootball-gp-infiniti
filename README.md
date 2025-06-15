@@ -33,7 +33,7 @@
   <li><strong>Punti allenamento</strong>: fondamentali per sviluppare i tuoi calciatori</li>
 </ul>
 
-<p>In pochi secondi puoi avere il controllo completo del tuo club. Prova adesso i trucchi: <strong><a href="#">scarica subito il generatore</a></strong>.</p>
+<p>In pochi secondi puoi avere il controllo completo del tuo club. Prova adesso i trucchi: <strong>scarica subito il generatore</strong>.</p>
 
 <h2>eFootball trucchi funzionanti 2025: perché questo metodo è il migliore</h2>
 
